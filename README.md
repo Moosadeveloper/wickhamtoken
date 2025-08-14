@@ -1,5 +1,5 @@
 
-![Logo](https://web.archive.org/web/20240311032559im_/https://wickhamtoken.com/wp-content/uploads/2021/07/logo-pronto-black-1.png)
+![Logo](https://web.archive.org/web/20240311032431im_/https://wickhamtoken.com/wp-content/uploads/2021/07/logo-pronto-black-1.png)
 
 
 # Wickhamtoken
